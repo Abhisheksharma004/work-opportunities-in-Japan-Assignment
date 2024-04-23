@@ -1,4 +1,4 @@
-# Work Opportunities in Japan 🇯🇵
+# Work Opportunities in Japan
 
 Welcome to Work Opportunities in Japan, your go-to platform for discovering exciting job opportunities in Japan's dynamic market!
 
